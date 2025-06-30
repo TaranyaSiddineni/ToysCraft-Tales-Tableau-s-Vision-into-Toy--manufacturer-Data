@@ -1,1 +1,1 @@
-# ToysCraft-Tales-Tableau-s-Vision-into-Toy--manufacturer-Data
+# ToyCraft-Tales-Tableau-s-Vision-into-Toy-Manufacturer-Data
